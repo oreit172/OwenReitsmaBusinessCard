@@ -1,6 +1,6 @@
 # Owen Reitsma
 
-**Information Design Student | Graphic Designer**
+**Information Design Student &bull;  Graphic Designer**
 
 *Turning complex ideas into clear, functional, and visually engaging designs*
 
